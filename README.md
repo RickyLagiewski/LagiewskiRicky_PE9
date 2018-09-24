@@ -1,1 +1,0 @@
-# LagiewskiRicky_PE9
